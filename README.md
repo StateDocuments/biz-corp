@@ -1,4 +1,5 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Biz-Corp/blob/master/3275a9cd94ad4ac2.png)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Biz-Corp/blob/master/EgBJYCDWoAAsFcG.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Biz-Corp/blob/master/EgBlnLVXkAUYcKU.jpeg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Biz-Corp/blob/master/EgBmsknXYAI9rRE.jpeg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Biz-Corp/blob/master/EgBnmUGX0AE05PA.jpeg)
